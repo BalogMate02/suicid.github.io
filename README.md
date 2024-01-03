@@ -1,0 +1,1 @@
+# suicid.github.io
